@@ -1,1 +1,0 @@
-# bozotats.github.io
